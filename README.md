@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @zchisawesome
-- 👀 I’m interested in running and sleeping
+- 👀 I’m interested in running and film
 - 🌱 I’m currently learning how to not procrastinate (also C, C++, Java, and python)
 - 💞️ I’m looking to collaborate on anything honestly
 - 📫 How to reach me z.caleb.hernandez@gmail.com
